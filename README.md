@@ -5,4 +5,5 @@ We are students who understand that we are in the priviledged position where sim
 
 Coded using a bootstrap template and edited by Zahra Rahman 2020
 
-Visit us on instagram (@bame_ldn)
+Visit us on instagram (@bame_ldn // @bame_blogs // @bameldnpodcast)
+ 
